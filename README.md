@@ -1,4 +1,4 @@
-https://www.linkedin.com/in/yanik-meili-5a86a1175/
+→ https://www.linkedin.com/in/yanik-meili-5a86a1175/
 
 Currently looking for an internship or apprenticeship for a full stack position.
 

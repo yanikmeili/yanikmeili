@@ -1,4 +1,4 @@
-→ https://www.linkedin.com/in/yanik-meili-5a86a1175/
+→ https://www.linkedin.com/in/yanik-meili
 
 
 → I spent my childhood in Switzerland before moving to Brazil at age ten. I graduated from the French High School of São Paulo, where I became quadrilingual after     learning Spanish and English in addition to Portuguese and French.
